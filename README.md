@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do lumityS2 😁
+## Bem-vindo(a) ao perfil do JOAO 😁
 
  <div>
    <a href="https://github.com/lumityS2">
